@@ -1,3 +1,8 @@
+THIS IS A FAN-MADE PROJECT, no copyright infringement intended. 
+
+
+
+
 UPDATE (22nd Feb 2023, Version 1,2,1):
 
 MAKE SURE YOU DOWNLOAD THE LATEST VERSION OF THE GAME BELOW TO PLAY WITH PLAYERS THAT ALSO HAVE THIS UPDATE. The game does not update automatically. 
